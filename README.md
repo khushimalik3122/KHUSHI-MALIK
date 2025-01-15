@@ -1,3 +1,4 @@
+![https://www.canva.com/design/DAGcRGpNx4Y/G1I-XgDqTLvO0RgD3iGgwg/edit?utm_content=DAGcRGpNx4Y&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton]
 # About Me 🙋‍♀️
 
 Hi there! I'm **Khushi** 👋, a passionate and curious learner currently pursuing a **BSc at Kirori Mal College**. I aspire to become a **data analyst professional** and later an entrepreneur in the field of **education and research**.
