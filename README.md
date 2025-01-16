@@ -38,7 +38,7 @@ Hi there! I'm **Khushi** 👋, a passionate and curious learner currently pursui
 ## 📫 Let's Connect!
 - GitHub: [ GitHub Profile](https://github.com/khushimalik3122)
 - LinkedIn: [ LinkedIn Profile](https://www.linkedin.com/in/khushi-malik-6b972b280/)
-- Email: your-khushimalik511263@gmail.com
+- Email: -khushimalik511263@gmail.com
 - Portfolio: [Portfolio](https://khushimalik555data-analyst.my.canva.site/)
 ---
 
